@@ -1,2 +1,0 @@
-# SpyReiz-zel
-SpyReizÖzel
